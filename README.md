@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## What creature is smarter than a talking parrot? A spelling bee.
