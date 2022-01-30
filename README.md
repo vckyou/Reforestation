@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## Why do crabs never give to charity? Because they’re shellfish.
