@@ -1,3 +1,3 @@
-## Where was the Declaration of Independence signed?
+## Why do pumpkins sit on people’s porches?
 ## 
-## At the bottom! 
+## They have no hands to knock on the door.
