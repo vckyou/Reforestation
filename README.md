@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## What do bees do after they are married? They go on a honeymoon.
