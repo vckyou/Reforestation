@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## My dentist is the best, he even has a little plaque!
