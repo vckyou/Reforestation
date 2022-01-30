@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## It doesn't matter how much you push the envelope. It will still be stationary.
