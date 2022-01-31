@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Why did the tree go to the dentist? It needed a root canal.
