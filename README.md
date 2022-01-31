@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
