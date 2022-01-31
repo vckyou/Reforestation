@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Why did the tomato blush? Because it saw the salad dressing.
