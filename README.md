@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
