@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## What do you call a beehive without the b's? An eehive.
