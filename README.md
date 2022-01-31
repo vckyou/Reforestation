@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
