@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## What do computers and air conditioners have in common? They both become useless when you open windows.
