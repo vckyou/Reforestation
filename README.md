@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Why are fish easy to weigh? Because they have their own scales.
