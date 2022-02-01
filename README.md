@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## I thought my wife was joking when she said she'd leave me if I didn't stop signing "I'm A Believer"... Then I saw her face.
