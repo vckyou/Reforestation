@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
