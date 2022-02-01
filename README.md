@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
