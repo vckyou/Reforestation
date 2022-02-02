@@ -1,1 +1,2 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## What is the best way to carve?
+## Whittle by whittle.
