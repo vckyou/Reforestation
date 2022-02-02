@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## I couldn't get a reservation at the library. They were completely booked.
