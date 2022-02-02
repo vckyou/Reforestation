@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## I’ll tell you something about German sausages, they’re the wurst
