@@ -1,1 +1,1 @@
-## Have you heard of the band 1023MB? They haven't got a gig yet.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
