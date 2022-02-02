@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
