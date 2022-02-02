@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## Without geometry life is pointless.
