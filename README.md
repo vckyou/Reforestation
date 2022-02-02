@@ -1,3 +1,1 @@
-## I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
-## 
-## So, I got a job at a travel agency.  Now, I know I'll be going places.
+## A book just fell on my head. I only have my shelf to blame.
