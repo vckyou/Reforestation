@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## I have kleptomania, but when it gets bad, I take something for it.
