@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## I just got fired from a florist, apparently I took too many leaves.
