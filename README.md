@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## My boss told me to have a good day... so I went home.
