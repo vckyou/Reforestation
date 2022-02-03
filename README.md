@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## Did you know that ghosts call their true love their ghoul-friend?
