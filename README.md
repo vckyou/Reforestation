@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
