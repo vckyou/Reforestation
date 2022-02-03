@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## This morning I was wondering where the sun was, but then it dawned on me.
