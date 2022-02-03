@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
