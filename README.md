@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## What did the calculator say to the student? You can count on me.
