@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## What biscuit does a short person like? Shortbread. 
