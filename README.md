@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
