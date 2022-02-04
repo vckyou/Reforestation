@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## You know that cemetery up the road? People are dying to get in there.
