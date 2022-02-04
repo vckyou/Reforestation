@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
