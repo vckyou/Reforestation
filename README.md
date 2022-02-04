@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
