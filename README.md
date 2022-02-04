@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## What did the digital clock say to the grandfather clock? Look, no hands!
