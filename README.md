@@ -1,1 +1,1 @@
-## It's difficult to say what my wife does, she sells sea shells by the sea shore.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
