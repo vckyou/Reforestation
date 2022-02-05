@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
