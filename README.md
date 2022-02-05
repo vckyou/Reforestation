@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## Who did the wizard marry? His ghoul-friend
