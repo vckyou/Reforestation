@@ -1,1 +1,2 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
