@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
