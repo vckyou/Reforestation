@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## I had a dream that I was a muffler last night. I woke up exhausted!
