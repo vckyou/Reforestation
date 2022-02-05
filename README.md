@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## I'll tell you what often gets over looked... garden fences.
