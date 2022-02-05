@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## Why are fish so smart? Because they live in schools!
