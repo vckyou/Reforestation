@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## Why don't sharks eat clowns?  Because they taste funny.
