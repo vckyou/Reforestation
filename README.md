@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## Remember, the best angle to approach a problem from is the "try" angle.
