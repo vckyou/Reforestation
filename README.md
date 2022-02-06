@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
