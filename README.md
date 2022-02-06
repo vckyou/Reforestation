@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## How do you fix a broken pizza? With tomato paste.
