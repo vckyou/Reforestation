@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## I got fired from a florist, apparently I took too many leaves.
