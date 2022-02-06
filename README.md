@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## What's red and bad for your teeth? A Brick.
