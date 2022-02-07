@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Why do choirs keep buckets handy? So they can carry their tune
