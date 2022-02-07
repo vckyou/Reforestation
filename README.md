@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## When does a joke become a dad joke? When it becomes apparent.
