@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
