@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Where do rabbits go after they get married? On a bunny-moon.
