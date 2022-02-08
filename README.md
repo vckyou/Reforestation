@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
