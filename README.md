@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
