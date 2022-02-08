@@ -1,1 +1,1 @@
-## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
