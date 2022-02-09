@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## Geology rocks, but Geography is where it's at!
