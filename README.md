@@ -1,1 +1,3 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
