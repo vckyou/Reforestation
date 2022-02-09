@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
