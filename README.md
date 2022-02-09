@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
