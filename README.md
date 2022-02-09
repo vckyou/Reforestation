@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## What do you call an alligator in a vest? An in-vest-igator!
