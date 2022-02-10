@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
