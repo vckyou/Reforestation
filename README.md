@@ -1,1 +1,1 @@
-## Some people say that comedians who tell one too many light bulb jokes soon burn out, but they don't know watt they are talking about. They're not that bright.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
