@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Our wedding was so beautiful, even the cake was in tiers.
