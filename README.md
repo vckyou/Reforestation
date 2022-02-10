@@ -1,1 +1,2 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
