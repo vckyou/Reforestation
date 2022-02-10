@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## It doesn't matter how much you push the envelope. It will still be stationary.
