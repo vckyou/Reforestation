@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
