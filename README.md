@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
