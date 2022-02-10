@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
