@@ -1,1 +1,2 @@
-## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
