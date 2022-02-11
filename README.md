@@ -1,1 +1,1 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## What did the ocean say to the shore? Nothing, it just waved.
