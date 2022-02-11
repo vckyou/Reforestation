@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## What do bees do after they are married? They go on a honeymoon.
