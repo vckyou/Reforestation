@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## I asked a frenchman if he played video games. He said "Wii"
