@@ -1,1 +1,1 @@
-## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
