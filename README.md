@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Me and my mates are in a band called Duvet. We're a cover band.
