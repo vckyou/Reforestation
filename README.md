@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## What do you do on a remote island? Try and find the TV island it belongs to.
