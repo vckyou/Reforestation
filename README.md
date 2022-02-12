@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## Why do bees have sticky hair? Because they use honey combs!
