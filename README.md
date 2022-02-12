@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## How many South Americans does it take to change a lightbulb? A Brazilian
