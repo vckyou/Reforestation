@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
