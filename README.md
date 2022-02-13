@@ -1,1 +1,1 @@
-## It's difficult to say what my wife does, she sells sea shells by the sea shore.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
