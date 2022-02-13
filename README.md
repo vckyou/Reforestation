@@ -1,1 +1,2 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
