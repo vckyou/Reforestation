@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
