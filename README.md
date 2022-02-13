@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
