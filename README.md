@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
