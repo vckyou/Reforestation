@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
