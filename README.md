@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## Why did the coffee file a police report? It got mugged.
