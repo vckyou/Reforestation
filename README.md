@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
