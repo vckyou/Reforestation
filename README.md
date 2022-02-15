@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
