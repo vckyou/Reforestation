@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## It doesn't matter how much you push the envelope. It will still be stationary.
