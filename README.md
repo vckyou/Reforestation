@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## How come a man driving a train got struck by lightning? He was a good conductor.
