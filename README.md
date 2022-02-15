@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
