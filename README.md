@@ -1,1 +1,2 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Where do cats write notes?
+## Scratch Paper!
