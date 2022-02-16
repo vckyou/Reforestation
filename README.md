@@ -1,1 +1,1 @@
-## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
