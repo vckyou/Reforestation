@@ -1,1 +1,2 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## What do you do when you see a space man?
+## Park your car, man.
