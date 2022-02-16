@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Man, I really love my furniture... me and my recliner go way back.
