@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
