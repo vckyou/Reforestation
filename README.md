@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
