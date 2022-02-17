@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## What do you get when you cross a bee and a sheep? A bah-humbug.
