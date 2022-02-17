@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## Why did the scarecrow win an award? Because he was outstanding in his field.
