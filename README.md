@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## Leather is great for sneaking around because it's made of hide.
