@@ -1,1 +1,1 @@
-## I met this girl on a dating site and, I don't know, we just clicked.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
