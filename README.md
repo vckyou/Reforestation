@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## Did you hear about the runner who was criticized? He just took it in stride
