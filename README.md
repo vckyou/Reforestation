@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
