@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
