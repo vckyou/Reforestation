@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
