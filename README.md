@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
