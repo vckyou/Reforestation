@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## You can't run through a camp site. You can only ran, because it's past tents.
