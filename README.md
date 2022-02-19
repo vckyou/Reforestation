@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
