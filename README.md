@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## How are false teeth like stars? They come out at night!
