@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## It doesn't matter how much you push the envelope. It will still be stationary.
