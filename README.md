@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## Where do you learn to make banana splits? At sundae school.
