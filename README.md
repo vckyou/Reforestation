@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## Why is the ocean always blue? Because the shore never waves back.
