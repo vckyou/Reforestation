@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## "I'm sorry." "Hi sorry, I'm dad"
