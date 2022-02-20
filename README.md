@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
