@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## How come a man driving a train got struck by lightning? He was a good conductor.
