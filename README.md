@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
