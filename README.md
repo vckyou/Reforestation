@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Where does Napoleon keep his armies? In his sleevies.
