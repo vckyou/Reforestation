@@ -1,1 +1,2 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## Where do cats write notes?
+## Scratch Paper!
