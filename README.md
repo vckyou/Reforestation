@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## What is this movie about? It is about 2 hours long.
