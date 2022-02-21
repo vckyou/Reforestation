@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## What is a tornado's favorite game to play? Twister!
