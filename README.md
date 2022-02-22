@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
