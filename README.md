@@ -1,1 +1,1 @@
-## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
