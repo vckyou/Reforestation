@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
