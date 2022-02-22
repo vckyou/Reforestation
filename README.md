@@ -1,1 +1,3 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
