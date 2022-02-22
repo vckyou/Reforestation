@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Where do rabbits go after they get married? On a bunny-moon.
