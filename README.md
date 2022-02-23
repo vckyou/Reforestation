@@ -1,1 +1,1 @@
-## How do you make a water bed more bouncy. You use Spring Water
+## Why are ghosts bad liars? Because you can see right through them!
