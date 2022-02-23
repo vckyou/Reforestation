@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
