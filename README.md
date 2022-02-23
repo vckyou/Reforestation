@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
