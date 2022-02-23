@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
