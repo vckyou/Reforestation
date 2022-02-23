@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
