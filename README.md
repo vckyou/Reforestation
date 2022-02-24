@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## Leather is great for sneaking around because it's made of hide.
