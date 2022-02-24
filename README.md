@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
