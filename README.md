@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## Some people eat light bulbs. They say it's a nice light snack.
