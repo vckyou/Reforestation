@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
