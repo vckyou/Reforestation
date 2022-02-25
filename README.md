@@ -1,1 +1,3 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
