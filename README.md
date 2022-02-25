@@ -1,1 +1,3 @@
-## I used to be a banker, but I lost interest.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
