@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
