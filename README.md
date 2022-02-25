@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## I considered building the patio by myself. But I didn't have the stones.
