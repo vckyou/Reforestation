@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## I used to work in a shoe recycling shop. It was sole destroying.
