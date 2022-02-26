@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## What do you call a beehive without the b's? An eehive.
