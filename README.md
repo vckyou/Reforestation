@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
