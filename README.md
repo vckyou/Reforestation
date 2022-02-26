@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## An apple a day keeps the bullies away. If you throw it hard enough.
