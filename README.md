@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## Why did the tomato blush? Because it saw the salad dressing.
