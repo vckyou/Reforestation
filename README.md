@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## What did the piece of bread say to the knife? Butter me up.
