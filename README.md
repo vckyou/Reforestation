@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## A book just fell on my head. I only have my shelf to blame.
