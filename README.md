@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
