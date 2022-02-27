@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
