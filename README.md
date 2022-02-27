@@ -1,1 +1,2 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## Where do cats write notes?
+## Scratch Paper!
