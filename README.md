@@ -1,1 +1,1 @@
-## Some people say that comedians who tell one too many light bulb jokes soon burn out, but they don't know watt they are talking about. They're not that bright.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
