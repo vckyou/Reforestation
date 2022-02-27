@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
