@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Whoever invented the knock-knock joke should get a no bell prize.
