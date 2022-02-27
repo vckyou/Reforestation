@@ -1,1 +1,1 @@
-## What do birds give out on Halloween? Tweets.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
