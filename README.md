@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
