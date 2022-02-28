@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
