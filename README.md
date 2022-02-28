@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
