@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## I just got fired from a florist, apparently I took too many leaves.
