@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
