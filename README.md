@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
