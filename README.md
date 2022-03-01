@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
