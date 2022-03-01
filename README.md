@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## What do you get when you cross a snowman with a vampire? Frostbite.
