@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## A cannibal is someone who is fed up with people.
