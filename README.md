@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
