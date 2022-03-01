@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
