@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
