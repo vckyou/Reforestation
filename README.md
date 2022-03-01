@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Why are ghosts bad liars? Because you can see right through them!
