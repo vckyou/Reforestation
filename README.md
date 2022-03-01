@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
