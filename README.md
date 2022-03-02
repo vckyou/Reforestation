@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## "I'm sorry." "Hi sorry, I'm dad"
