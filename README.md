@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
