@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
