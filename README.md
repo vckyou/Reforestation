@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## Atheism is a non-prophet organisation.
