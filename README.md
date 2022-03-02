@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
