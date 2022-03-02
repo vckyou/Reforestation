@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## What kind of tree fits in your hand? A palm tree!
