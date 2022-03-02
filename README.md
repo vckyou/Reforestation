@@ -1,1 +1,2 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
