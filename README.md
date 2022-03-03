@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
