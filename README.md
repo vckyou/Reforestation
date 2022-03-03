@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## Milk is also the fastest liquid on earth – its pasteurized before you even see it
