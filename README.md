@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
