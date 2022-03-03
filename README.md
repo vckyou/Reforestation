@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## Why are fish easy to weigh? Because they have their own scales.
