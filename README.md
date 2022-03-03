@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
