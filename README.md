@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
