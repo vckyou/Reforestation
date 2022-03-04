@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## Leather is great for sneaking around because it's made of hide.
