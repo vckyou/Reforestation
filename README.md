@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
