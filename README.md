@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## I was wondering why the frisbee was getting bigger, then it hit me.
