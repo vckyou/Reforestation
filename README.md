@@ -1,1 +1,2 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
