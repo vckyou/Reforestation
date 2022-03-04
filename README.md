@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
