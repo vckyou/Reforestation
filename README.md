@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
