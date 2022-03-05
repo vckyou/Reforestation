@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
