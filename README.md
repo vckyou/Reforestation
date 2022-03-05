@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## How does the moon cut his hair? Eclipse it.
