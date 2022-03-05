@@ -1,1 +1,1 @@
-## What do you call an old snowman? Water.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
