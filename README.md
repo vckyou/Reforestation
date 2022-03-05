@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## What did the ocean say to the shore? Nothing, it just waved.
