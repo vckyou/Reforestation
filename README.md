@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
