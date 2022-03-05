@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
