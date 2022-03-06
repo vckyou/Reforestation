@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## There's not really any training for garbagemen. They just pick things up as they go.
