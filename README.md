@@ -1,1 +1,1 @@
-## I thought my wife was joking when she said she'd leave me if I didn't stop signing "I'm A Believer"... Then I saw her face.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
