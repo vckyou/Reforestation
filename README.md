@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
