@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## You can't trust a ladder. It will always let you down
