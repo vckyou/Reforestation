@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
