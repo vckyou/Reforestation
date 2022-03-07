@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## "I'll call you later." Don't call me later, call me Dad.
