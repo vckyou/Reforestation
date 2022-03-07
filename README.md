@@ -1,1 +1,2 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## What do you do when you see a space man?
+## Park your car, man.
