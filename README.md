@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
