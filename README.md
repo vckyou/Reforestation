@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
