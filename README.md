@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## I met this girl on a dating site and, I don't know, we just clicked.
