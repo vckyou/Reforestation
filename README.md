@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
