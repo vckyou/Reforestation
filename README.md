@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
