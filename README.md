@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## How can you tell a vampire has a cold? They start coffin.
