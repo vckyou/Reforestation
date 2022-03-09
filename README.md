@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
