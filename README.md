@@ -1,1 +1,1 @@
-## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
