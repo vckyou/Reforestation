@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
