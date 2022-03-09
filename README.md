@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## You can't run through a camp site. You can only ran, because it's past tents.
