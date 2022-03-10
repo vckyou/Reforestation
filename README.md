@@ -1,1 +1,3 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
