@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
