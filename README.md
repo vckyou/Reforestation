@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
