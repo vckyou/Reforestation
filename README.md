@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
