@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## How come the stadium got hot after the game? Because all of the fans left.
