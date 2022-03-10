@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
