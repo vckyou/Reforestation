@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## What's black and white and read all over? The newspaper.
