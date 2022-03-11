@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
