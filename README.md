@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
