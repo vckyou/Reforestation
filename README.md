@@ -1,1 +1,3 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
