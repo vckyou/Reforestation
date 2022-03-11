@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
