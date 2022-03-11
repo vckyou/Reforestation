@@ -1,1 +1,3 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
