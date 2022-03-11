@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
