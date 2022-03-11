@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
