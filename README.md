@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## What do bees do after they are married? They go on a honeymoon.
