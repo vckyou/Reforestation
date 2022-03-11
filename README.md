@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
