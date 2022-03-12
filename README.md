@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
