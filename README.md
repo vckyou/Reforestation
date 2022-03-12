@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
