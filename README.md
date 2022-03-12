@@ -1,1 +1,1 @@
-## A man was caught stealing in a supermarket today while balanced on the shoulders of a couple of vampires. He was charged with shoplifting on two counts. 
+## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
