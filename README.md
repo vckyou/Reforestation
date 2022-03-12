@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
