@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
