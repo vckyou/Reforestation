@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
