@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## How come a man driving a train got struck by lightning? He was a good conductor.
