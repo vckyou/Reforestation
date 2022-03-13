@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## Why did the melons plan a big wedding? Because they cantaloupe!
