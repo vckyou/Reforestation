@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
