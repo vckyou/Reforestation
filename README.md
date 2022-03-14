@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## It was raining cats and dogs the other day. I almost stepped in a poodle.
