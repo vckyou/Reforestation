@@ -1,1 +1,3 @@
-## What’s E.T. short for? He’s only got little legs.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
