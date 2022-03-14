@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Why do crabs never give to charity? Because they’re shellfish.
