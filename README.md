@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## How do you make holy water? You boil the hell out of it.
