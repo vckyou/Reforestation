@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
