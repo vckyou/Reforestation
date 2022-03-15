@@ -1,1 +1,1 @@
-## What is the leading cause of dry skin? Towels
+## Whoever invented the knock-knock joke should get a no bell prize.
