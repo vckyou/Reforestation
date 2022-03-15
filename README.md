@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## Did you hear about the bread factory burning down? They say the business is toast.
