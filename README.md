@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
