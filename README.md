@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Remember, the best angle to approach a problem from is the "try" angle.
