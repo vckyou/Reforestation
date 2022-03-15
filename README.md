@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
