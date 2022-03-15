@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Why are skeletons so calm? Because nothing gets under their skin.
