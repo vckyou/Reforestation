@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## What did the fish say when it swam into a wall? Damn!
