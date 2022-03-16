@@ -1,1 +1,1 @@
-## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
