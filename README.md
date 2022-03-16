@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Why do crabs never give to charity? Because they’re shellfish.
