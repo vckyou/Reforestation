@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
