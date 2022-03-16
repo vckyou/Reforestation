@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## Our wedding was so beautiful, even the cake was in tiers.
