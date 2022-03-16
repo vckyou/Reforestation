@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## Don't tell secrets in corn fields. Too many ears around.
