@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## Why didn’t the skeleton cross the road? Because he had no guts.
