@@ -1,1 +1,1 @@
-## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
