@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## What kind of magic do cows believe in? MOODOO.
