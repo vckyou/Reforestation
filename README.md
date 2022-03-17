@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
