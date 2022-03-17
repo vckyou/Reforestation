@@ -1,1 +1,1 @@
-## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
