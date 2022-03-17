@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
