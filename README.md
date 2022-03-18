@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## When does a joke become a dad joke? When it becomes apparent.
