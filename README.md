@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
