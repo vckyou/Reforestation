@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
