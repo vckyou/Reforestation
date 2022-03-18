@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## Where do sheep go to get their hair cut? The baa-baa shop.
