@@ -1,1 +1,1 @@
-## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+## I cut my finger chopping cheese, but I think that I may have grater problems.
