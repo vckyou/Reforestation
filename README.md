@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
