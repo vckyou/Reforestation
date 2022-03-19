@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
