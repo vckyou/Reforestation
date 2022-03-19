@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
