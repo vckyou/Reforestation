@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
