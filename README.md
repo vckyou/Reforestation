@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
