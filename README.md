@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
