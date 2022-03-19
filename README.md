@@ -1,1 +1,1 @@
-## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
