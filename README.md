@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## Conjunctivitis.com – now that’s a site for sore eyes.
