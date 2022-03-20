@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## An apple a day keeps the bullies away. If you throw it hard enough.
