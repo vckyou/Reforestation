@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
