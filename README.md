@@ -1,1 +1,1 @@
-## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
