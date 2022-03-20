@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## Why do birds fly south for the winter? Because it's too far to walk.
