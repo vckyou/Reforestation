@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## Don't trust atoms. They make up everything.
