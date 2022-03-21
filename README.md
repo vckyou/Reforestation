@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
