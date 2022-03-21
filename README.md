@@ -1,1 +1,1 @@
-## Milk is also the fastest liquid on earth – its pasteurized before you even see it
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
