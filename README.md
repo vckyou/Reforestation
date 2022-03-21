@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
