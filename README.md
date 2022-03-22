@@ -1,1 +1,3 @@
-## What do you call a bear with no teeth? A gummy bear!
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
