@@ -1,1 +1,3 @@
-## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
