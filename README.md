@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## To be Frank, I'd have to change my name.
