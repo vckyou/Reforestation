@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## If two vegans are having an argument, is it still considered beef?
