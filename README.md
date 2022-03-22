@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
