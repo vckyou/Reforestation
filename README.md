@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
