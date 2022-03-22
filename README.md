@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## My boss told me to have a good day... so I went home.
