@@ -1,1 +1,1 @@
-## What kind of music do mummy's like? Rap
+## Why do cows wear bells? Because their horns don't work.
