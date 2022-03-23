@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
