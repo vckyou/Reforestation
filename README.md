@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## What animal is always at a game of cricket? A bat.
