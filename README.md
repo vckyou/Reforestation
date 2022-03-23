@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## There’s a new type of broom out, it’s sweeping the nation.
