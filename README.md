@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
