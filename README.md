@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
