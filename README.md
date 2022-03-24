@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
