@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## I asked a frenchman if he played video games. He said "Wii"
