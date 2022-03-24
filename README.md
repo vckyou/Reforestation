@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
