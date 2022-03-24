@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## Whoever invented the knock-knock joke should get a no bell prize.
