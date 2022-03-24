@@ -1,1 +1,1 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
