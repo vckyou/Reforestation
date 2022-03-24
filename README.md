@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## What do you call a monkey in a mine field? A babooooom!
