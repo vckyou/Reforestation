@@ -1,1 +1,1 @@
-## Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
