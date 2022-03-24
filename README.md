@@ -1,1 +1,1 @@
-## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+## A magician was driving down the street and then he turned into a driveway.
