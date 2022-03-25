@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
