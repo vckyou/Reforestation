@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
