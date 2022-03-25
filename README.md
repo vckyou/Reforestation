@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## I used to hate facial hair, but then it grew on me.
