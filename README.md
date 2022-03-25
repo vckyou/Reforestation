@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## I tried to write a chemistry joke, but could never get a reaction.
