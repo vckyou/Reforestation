@@ -1,1 +1,1 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
