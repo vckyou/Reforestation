@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
