@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## What did the digital clock say to the grandfather clock? Look, no hands!
