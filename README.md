@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## Why do birds fly south for the winter? Because it's too far to walk.
