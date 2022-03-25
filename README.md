@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Milk is also the fastest liquid on earth – its pasteurized before you even see it
