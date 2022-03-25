@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
