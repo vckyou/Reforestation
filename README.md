@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
