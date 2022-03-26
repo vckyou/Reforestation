@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## What did one snowman say to the other snow man? Do you smell carrot?
