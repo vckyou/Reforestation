@@ -1,1 +1,2 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
