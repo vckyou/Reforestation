@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## I'd like to start a diet, but I've got too much on my plate right now.
