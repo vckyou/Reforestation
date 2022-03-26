@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Why is the ocean always blue? Because the shore never waves back.
