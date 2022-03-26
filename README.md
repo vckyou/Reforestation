@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
