@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## What do you get when you cross a rabbit with a water hose? Hare spray.
