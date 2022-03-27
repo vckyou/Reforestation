@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
