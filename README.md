@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
