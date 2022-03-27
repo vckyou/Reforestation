@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
