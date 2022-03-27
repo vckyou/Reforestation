@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
