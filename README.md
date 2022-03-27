@@ -1,1 +1,1 @@
-## What cheese can never be yours? Nacho cheese.
+## Whoever invented the knock-knock joke should get a no bell prize.
