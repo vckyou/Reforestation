@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
