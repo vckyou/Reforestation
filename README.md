@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
