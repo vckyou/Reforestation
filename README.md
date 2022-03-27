@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
