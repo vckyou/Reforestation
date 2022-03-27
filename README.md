@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## I saw a documentary on TV last night about how they put ships together.  It was rivetting.
