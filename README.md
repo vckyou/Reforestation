@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## How come a man driving a train got struck by lightning? He was a good conductor.
