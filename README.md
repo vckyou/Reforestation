@@ -1,1 +1,2 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## Where do cats write notes?
+## Scratch Paper!
