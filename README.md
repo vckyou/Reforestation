@@ -1,1 +1,3 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
