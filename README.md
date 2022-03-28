@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
