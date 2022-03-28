@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## I asked a frenchman if he played video games. He said "Wii"
