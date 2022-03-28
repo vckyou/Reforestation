@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## Why do crabs never give to charity? Because they’re shellfish.
