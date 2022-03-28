@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## I gave all my dead batteries away today, free of charge.
