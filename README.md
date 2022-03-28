@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
