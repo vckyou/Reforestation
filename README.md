@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
