@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
