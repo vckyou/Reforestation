@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## What did one snowman say to the other snow man? Do you smell carrot?
