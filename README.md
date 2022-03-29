@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## I used to work for a soft drink can crusher. It was soda pressing.
