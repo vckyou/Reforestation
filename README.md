@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## What has ears but cannot hear? A field of corn.
