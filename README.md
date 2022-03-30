@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## What’s E.T. short for? He’s only got little legs.
