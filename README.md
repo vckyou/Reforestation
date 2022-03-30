@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Where does Napoleon keep his armies? In his sleevies.
