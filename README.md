@@ -1,1 +1,1 @@
-## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
