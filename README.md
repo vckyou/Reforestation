@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## You can't run through a camp site. You can only ran, because it's past tents.
