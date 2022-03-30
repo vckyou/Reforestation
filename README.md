@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## What's the best thing about elevator jokes? They work on so many levels.
