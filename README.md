@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## It was raining cats and dogs the other day. I almost stepped in a poodle.
