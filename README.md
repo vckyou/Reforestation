@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
