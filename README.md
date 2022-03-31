@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Camping is intense.
