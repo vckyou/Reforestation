@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
