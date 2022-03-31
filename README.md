@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Why was ten scared of seven? Because seven ate nine.
