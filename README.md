@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## What do you call a dad that has fallen through the ice? A Popsicle.
