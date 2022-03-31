@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
