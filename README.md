@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
