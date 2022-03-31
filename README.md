@@ -1,1 +1,1 @@
-## What do you call a guy lying on your doorstep? Matt.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
