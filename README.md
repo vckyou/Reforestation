@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
