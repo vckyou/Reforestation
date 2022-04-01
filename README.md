@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## What do you get when you cross a snowman with a vampire? Frostbite.
