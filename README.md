@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## The first time I got a universal remote control I thought to myself, "This changes everything"
