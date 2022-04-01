@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## I was thinking about moving to Moscow but there is no point Russian into things.
