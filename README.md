@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## I just wrote a book on reverse psychology. Do not read it!
