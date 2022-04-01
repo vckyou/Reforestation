@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
