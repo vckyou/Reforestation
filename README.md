@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
