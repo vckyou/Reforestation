@@ -1,2 +1,1 @@
-## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
-## "Pop," goes the weasel.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
