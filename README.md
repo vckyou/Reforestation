@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
