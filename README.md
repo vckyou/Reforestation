@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## When do doctors get angry? When they run out of patients.
