@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
