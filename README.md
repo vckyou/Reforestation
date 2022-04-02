@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## When does a joke become a dad joke? When it becomes apparent.
