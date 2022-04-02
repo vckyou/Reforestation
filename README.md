@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## I’m on a whiskey diet. I’ve lost three days already.
