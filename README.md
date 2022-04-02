@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## Why are mummys scared of vacation? They're afraid to unwind.
