@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## What do you call a dictionary on drugs? High definition.
