@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## "I'm sorry." "Hi sorry, I'm dad"
