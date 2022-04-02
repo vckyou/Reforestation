@@ -1,1 +1,1 @@
-## What is bread's favorite number?  Leaven.
+## What's blue and not very heavy?  Light blue.
