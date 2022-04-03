@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## What did the pirate say on his 80th birthday? Aye Matey!
