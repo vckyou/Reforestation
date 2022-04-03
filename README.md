@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
