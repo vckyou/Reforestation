@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## Why did the barber win the race? He took a short cut.
