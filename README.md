@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
