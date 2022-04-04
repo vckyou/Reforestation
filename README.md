@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
