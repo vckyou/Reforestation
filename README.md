@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## How do you make holy water? You boil the hell out of it.
