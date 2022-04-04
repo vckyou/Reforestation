@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## I ordered a chicken and an egg from Amazon. I'll let you know.
