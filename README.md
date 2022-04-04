@@ -1,1 +1,1 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## Where did Captain Hook get his hook? From a second hand store.
