@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
