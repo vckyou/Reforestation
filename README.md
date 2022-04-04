@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
