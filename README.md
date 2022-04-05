@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Have you heard about corduroy pillows?  They're making headlines!
