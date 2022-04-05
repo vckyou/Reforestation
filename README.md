@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## Why are ghosts bad liars? Because you can see right through them!
