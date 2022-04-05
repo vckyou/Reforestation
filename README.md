@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## What did the piece of bread say to the knife? Butter me up.
