@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## How do you find Will Smith in the snow?  Look for fresh prints.
