@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## Why did the barber win the race? He took a short cut.
