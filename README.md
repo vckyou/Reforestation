@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Why didn’t the skeleton cross the road? Because he had no guts.
