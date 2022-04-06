@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
