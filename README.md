@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
