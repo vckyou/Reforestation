@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Why was the picture sent to prison? It was framed.
