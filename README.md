@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
