@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
