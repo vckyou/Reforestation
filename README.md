@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
