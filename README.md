@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## Why did the tomato blush? Because it saw the salad dressing.
