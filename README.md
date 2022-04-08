@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
