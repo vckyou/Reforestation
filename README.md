@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## An apple a day keeps the bullies away. If you throw it hard enough.
