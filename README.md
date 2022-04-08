@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What did the ocean say to the shore? Nothing, it just waved.
