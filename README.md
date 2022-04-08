@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
