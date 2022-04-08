@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## It doesn't matter how much you push the envelope. It will still be stationary.
