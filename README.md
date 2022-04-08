@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
