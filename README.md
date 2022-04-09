@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## Toasters were the first form of pop-up notifications.
