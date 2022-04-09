@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## What's orange and sounds like a parrot? A Carrot.
