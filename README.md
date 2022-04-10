@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## Thanks for explaining the word "many" to me. It means a lot.
