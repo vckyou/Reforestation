@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
