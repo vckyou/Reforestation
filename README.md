@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## Why do bees hum? Because they don't know the words.
