@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Why does Superman get invited to dinners? Because he is a Supperhero.
