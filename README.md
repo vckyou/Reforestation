@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
