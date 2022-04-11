@@ -1,1 +1,2 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
