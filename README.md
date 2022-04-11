@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## Don't tell secrets in corn fields. Too many ears around.
