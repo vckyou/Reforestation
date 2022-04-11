@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## I've just written a song about a tortilla. Well, it is more of a rap really.
