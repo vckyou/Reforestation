@@ -1,1 +1,1 @@
-## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
