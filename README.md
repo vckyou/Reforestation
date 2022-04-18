@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
