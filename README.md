@@ -1,1 +1,3 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
