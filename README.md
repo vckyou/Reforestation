@@ -1,1 +1,1 @@
-## My cat was just sick on the carpet, I don’t think it’s feline well.
+## Coffee has a tough time at my house, every morning it gets mugged.
