@@ -1,1 +1,3 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
