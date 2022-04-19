@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
