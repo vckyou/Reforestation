@@ -1,1 +1,1 @@
-## Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
