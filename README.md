@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## What kind of pants do ghosts wear? Boo jeans.
