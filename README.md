@@ -1,1 +1,1 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## What kind of magic do cows believe in? MOODOO.
