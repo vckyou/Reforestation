@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
