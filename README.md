@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## What did the calculator say to the student? You can count on me.
