@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## How come the stadium got hot after the game? Because all of the fans left.
