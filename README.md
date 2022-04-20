@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## You can't run through a camp site. You can only ran, because it's past tents.
