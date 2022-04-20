@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
