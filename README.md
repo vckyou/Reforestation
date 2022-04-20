@@ -1,2 +1,3 @@
-## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
-## "Pop," goes the weasel.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
