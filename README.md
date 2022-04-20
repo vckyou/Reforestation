@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## I'm glad I know sign language, it's pretty handy.
