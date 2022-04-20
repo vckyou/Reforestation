@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
