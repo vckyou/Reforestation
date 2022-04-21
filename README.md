@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
