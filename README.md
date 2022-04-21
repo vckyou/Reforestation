@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## Why are mummys scared of vacation? They're afraid to unwind.
