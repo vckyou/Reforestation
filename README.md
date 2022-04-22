@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## What did one plate say to the other plate? Dinner is on me!
