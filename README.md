@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## Why do fish live in salt water? Because pepper makes them sneeze!
