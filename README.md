@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
