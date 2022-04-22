@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
