@@ -1,1 +1,1 @@
-## How do you make a water bed more bouncy. You use Spring Water
+## Why did the man put his money in the freezer? He wanted cold hard cash!
