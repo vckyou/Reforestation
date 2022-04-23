@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## It doesn't matter how much you push the envelope. It will still be stationary.
