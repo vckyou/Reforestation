@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## When does a joke become a dad joke? When it becomes apparent.
