@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
