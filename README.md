@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
