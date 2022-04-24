@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## How does a French skeleton say hello? Bone-jour.
