@@ -1,1 +1,1 @@
-## I met this girl on a dating site and, I don't know, we just clicked.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
