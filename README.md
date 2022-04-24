@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
