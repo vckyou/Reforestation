@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## What do you call a beehive without the b's? An eehive.
